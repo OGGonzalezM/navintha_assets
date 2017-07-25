@@ -1,0 +1,1 @@
+# navintha_assets
